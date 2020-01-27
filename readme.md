@@ -1,1 +1,1 @@
-Hey Everyone,I am Deen. From  -(minus)100% coding knowledge to this google home page sample(0%). The pre-course(101)Microserve helps totest my coding skills. Your comments + or - will be appreciated.  
+Hey Everyone,I am Deen. From  -(minus)100% coding knowledge to this google home page sample(0%). The pre-course(101)Microserve helps to test my coding skills. Your comments + or - will be appreciated.  
